@@ -1,0 +1,1 @@
+Assets institucionales del portafolio.
